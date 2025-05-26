@@ -1,4 +1,4 @@
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31pigreyzqrq6pxlf7qeoy7qfatq&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=31pigreyzqrq6pxlf7qeoy7qfatq&redirect=true)
+
   <img src="https://github.com/user-attachments/assets/69ebd30f-a2cd-420a-b058-10136739e3b7">
   
 <p>
@@ -40,7 +40,16 @@ yo mama
 <img src="https://github.com/user-attachments/assets/e8bed0d3-9756-4791-996a-47b8aaabd3f5"> no noobs allowed <img src="https://github.com/user-attachments/assets/e8bed0d3-9756-4791-996a-47b8aaabd3f5">
 <p>
 <p>
-<img src="https://github.com/user-attachments/assets/7ae403de-3508-4c10-aec1-b71b2faababa">
+  
+  <div align="left">
+<details>
+<summary>stamps</summary>
+<br>
+</details>
+  <p>
+    
+<br clear="left"/>
+ <img align="center" width="700" src="https://github.com/user-attachments/assets/7ae403de-3508-4c10-aec1-b71b2faababa">
 
   
 </p>
