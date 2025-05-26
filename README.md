@@ -51,7 +51,9 @@ yo mama
 <details>
 <summary>fav media all the time</summary>
 <br clear="left">
-<img src="https://github.com/user-attachments/assets/72f41d54-4200-4248-a362-7c92a9094903"> <img src="https://github.com/user-attachments/assets/eaf30b06-8b4e-4b26-a012-af544c114156"> <img src="https://github.com/user-attachments/assets/963438d7-0b74-4b6d-b8cc-73929a5fa51f"> <img src="https://github.com/user-attachments/assets/57055f8a-bc9e-4554-a3d9-6989e040ca29"> <img src="https://github.com/user-attachments/assets/3b2597c5-871a-40f4-aff7-360833cd79a1"> <img src="https://github.com/user-attachments/assets/064ae5df-f43d-41cf-b699-3b4eca6dd28a">
+<img src="https://github.com/user-attachments/assets/72f41d54-4200-4248-a362-7c92a9094903"> <img src="https://github.com/user-attachments/assets/eaf30b06-8b4e-4b26-a012-af544c114156"> <img src="https://github.com/user-attachments/assets/963438d7-0b74-4b6d-b8cc-73929a5fa51f"> <img src="https://github.com/user-attachments/assets/57055f8a-bc9e-4554-a3d9-6989e040ca29"> <img src="https://github.com/user-attachments/assets/3b2597c5-871a-40f4-aff7-360833cd79a1"> <img src="https://github.com/user-attachments/assets/064ae5df-f43d-41cf-b699-3b4eca6dd28a"> <img src="https://github.com/user-attachments/assets/ff26fc0f-d39b-4346-b58e-a2d67c094b02"> <img src="https://github.com/user-attachments/assets/bc60f8b4-6c8b-4c27-a9cb-0a2483f33847">
+
+
 
   <p>
     
