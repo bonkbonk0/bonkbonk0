@@ -1,16 +1,10 @@
-
+<div align="center"> 
   
-<img aligh="center" src="https://github.com/user-attachments/assets/7d4239de-0d82-4f3d-b221-eab9efede88b"> 
+<img align="left" width="150" height="150" src="https://github.com/user-attachments/assets/bff37d46-9a8e-487c-9122-7605b30cd096"/> 
+
+<img align="right" src="https://github.com/user-attachments/assets/455fc49c-9b10-4550-9a8f-8ef54b58a2f2"/>
 
 
-
-![zns2ega65d3d1](https://github.com/user-attachments/assets/455fc49c-9b10-4550-9a8f-8ef54b58a2f2)
-
-
-
-<img aligh="left" width="150" height="150" src="https://github.com/user-attachments/assets/bff37d46-9a8e-487c-9122-7605b30cd096"> 
-
-can we honestly e date? you’re so beautiful. You always make me laugh, you always make me smile. You literally make me want to become a better person... I really enjoy every moment we spend together. My time has no value unless its spent with you. I tell everyone of my irls how awesome you are. Thank you for being you. Whenever you need someone to be there for you, know that i’ll always be right there by your side. I love you so much. I don’t think you ever realize how amazing you are sometimes. Life isn’t as fun when you’re not around. You are truly stunning. I want you to be my soulmate. I love the way you smile, your eyes are absolutely gorgeous. If I had a star for everytime you crossed my mind i could make the entire galaxy. Your personality is as pretty as you are and thats saying something. I love you, please date me. I am not even calling it e dating anymore because I know we will meet soon enough heart OK I ADMIT IT I LOVE YOU OK i hecking love you and it breaks my heart when i see you play with someone else or anyone commenting in your profile i just want to be your girlfriend and put a heart in my profile linking to your profile and have a walltext of you commenting cute things i want to play video games talk in discord all night and watch a movie together but you just seem so uninsterested in me it hecking kills me and i cant take it anymore i want to remove you but i care too much about you so please i’m begging you to eaither love me back or remove me and never contact me again it hurts so much to say this because i need you by my side but if you dont love me then i want you to leave because seeing your icon in my friendlist would kill me everyday of my pathetic life.
-
-![17482594423165359014822676572462](https://github.com/user-attachments/assets/03c4b225-8277-464d-9222-bbe89b104431)
-
+I don't really know what to do, my boyfriend is pretty toxic in the sense of he never pays attention to me, his friends always come first no matter what, he will drop everything and anyone for his best friend and ya I understand that a little bit bc they have a emotional bond but she treats him like shit she ghosts him and shit, hes also really possessive it hasn't happened yet w me but with all his other exes he would isolate them and make them block people, if they asked him to be fair or even try to reason with him he would get upset I know it's going to happen with me but I'm giving him a chance, I'm prepared for it and l'm prepared to go because I know loving him sometimes means letting go. I think once it gets bad Ill end things and if he does love me like he says then he would try to be better not to mention I think he has a crush on his bsf but doesn't want to accept it
+Yesterday I caught him in dating servers bc his friend showed me and I kinda just sat their and cried because I can deal with everything but I don't know if I can handle being cheated on again I truly do have feelings for him and I dont think or want to date anyone after him.
+l'm just exhausted I try to be pretty patient with him and calm bc he has bpd
