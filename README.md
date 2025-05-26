@@ -20,7 +20,7 @@ yo gurt
 <p>
 <p>
   
-<img align="center" width="165" height="165" src="https://github.com/user-attachments/assets/069e3580-6538-4449-8c21-8f09107c3299">
+<img align="center"  src="https://github.com/user-attachments/assets/069e3580-6538-4449-8c21-8f09107c3299">
 
 <p>
   <p>
