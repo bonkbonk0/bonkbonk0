@@ -27,7 +27,13 @@ yo gurt
 <img align="center" src="https://github.com/user-attachments/assets/4cc86684-6683-4a56-8169-e516bfeeedfb">
 <p>
   <p>
+    
 yo mama
+
+<img src="https://github.com/user-attachments/assets/81a7702a-d287-45cf-8635-d96ee2534372"> <img src="https://github.com/user-attachments/assets/108ace13-7f0f-4272-aea5-e6506187e408"> <img src="https://github.com/user-attachments/assets/29078547-a59c-48f4-b08f-9365de27ce71">
+
+
+
  <br clear="both"/>
 <div align=center>
 
@@ -45,15 +51,38 @@ yo mama
 <details>
 <summary>fav media all the time</summary>
 <br clear="left">
-<img src="https://github.com/user-attachments/assets/72f41d54-4200-4248-a362-7c92a9094903"> <img src="https://github.com/user-attachments/assets/eaf30b06-8b4e-4b26-a012-af544c114156">
+<img src="https://github.com/user-attachments/assets/72f41d54-4200-4248-a362-7c92a9094903"> <img src="https://github.com/user-attachments/assets/eaf30b06-8b4e-4b26-a012-af544c114156"> <img src="https://github.com/user-attachments/assets/963438d7-0b74-4b6d-b8cc-73929a5fa51f"> <img src="https://github.com/user-attachments/assets/57055f8a-bc9e-4554-a3d9-6989e040ca29"> <img src="https://github.com/user-attachments/assets/3b2597c5-871a-40f4-aff7-360833cd79a1"> <img src="https://github.com/user-attachments/assets/064ae5df-f43d-41cf-b699-3b4eca6dd28a">
 
+  <p>
+    
+  <p>
+<img src="https://github.com/user-attachments/assets/747ed140-a8f7-4a2e-9ee7-0de12c889ba0">
 
   
 </details>
   <p>
     
 <br clear="left"/>
- <img align="center" width="900" height="15" src="https://github.com/user-attachments/assets/7ae403de-3508-4c10-aec1-b71b2faababa">
+
+<div align="center">
+  
+ <img width="900" height="15" src="https://github.com/user-attachments/assets/7ae403de-3508-4c10-aec1-b71b2faababa"/>
+ <p>
+  <p>
+  <p>
+ <p>
+       
+<div align="left">
+  
+  <img src="https://github.com/user-attachments/assets/e4a6574e-ff5b-476a-b916-7c738bd5c054" height="40" hspace="10"> 
+  
+  <img src="https://github.com/user-attachments/assets/07d993f5-2c62-4a18-b799-f4d5e93f2b3f"
+ height="150" width="110" hspace="10">
+ <img src="https://github.com/user-attachments/assets/c3ec1504-0943-41c3-b37d-a868abe22aca" hspace="10">
+ <img src="https://github.com/user-attachments/assets/23dce15b-e771-4a02-964d-676963657aae" hspace="10"> <img src="https://github.com/user-attachments/assets/2e9e866a-ed86-4248-ad63-cfd9f15b6ed8" height="100" width="80"> <img src="https://github.com/user-attachments/assets/7533335b-440d-4343-8cc3-2811b1e3c36a" height="100" width="80" hspace="10">
+
+
+
 
   
 </p>
