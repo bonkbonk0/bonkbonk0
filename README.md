@@ -53,7 +53,13 @@ yo mama
 <details>
 <summary>fav media all the time</summary>
 <br clear="left">
-<img src="https://github.com/user-attachments/assets/72f41d54-4200-4248-a362-7c92a9094903"> <img src="https://github.com/user-attachments/assets/eaf30b06-8b4e-4b26-a012-af544c114156"> <img src="https://github.com/user-attachments/assets/963438d7-0b74-4b6d-b8cc-73929a5fa51f"> <img src="https://github.com/user-attachments/assets/57055f8a-bc9e-4554-a3d9-6989e040ca29"> <img src="https://github.com/user-attachments/assets/3b2597c5-871a-40f4-aff7-360833cd79a1"> <img src="https://github.com/user-attachments/assets/064ae5df-f43d-41cf-b699-3b4eca6dd28a"> <img src="https://github.com/user-attachments/assets/ff26fc0f-d39b-4346-b58e-a2d67c094b02"> <img src="https://github.com/user-attachments/assets/bc60f8b4-6c8b-4c27-a9cb-0a2483f33847">
+<img src="https://github.com/user-attachments/assets/72f41d54-4200-4248-a362-7c92a9094903"> <img src="https://github.com/user-attachments/assets/eaf30b06-8b4e-4b26-a012-af544c114156"> <img src="https://github.com/user-attachments/assets/963438d7-0b74-4b6d-b8cc-73929a5fa51f"> <img src="https://github.com/user-attachments/assets/57055f8a-bc9e-4554-a3d9-6989e040ca29"> <img src="https://github.com/user-attachments/assets/3b2597c5-871a-40f4-aff7-360833cd79a1"> <img src="https://github.com/user-attachments/assets/064ae5df-f43d-41cf-b699-3b4eca6dd28a"> <img src="https://github.com/user-attachments/assets/ff26fc0f-d39b-4346-b58e-a2d67c094b02"> <img src="https://github.com/user-attachments/assets/bc60f8b4-6c8b-4c27-a9cb-0a2483f33847"> <img src="https://github.com/user-attachments/assets/beb7f4b6-f336-4da4-9cbc-3fdfe78f2553"> <img src="https://github.com/user-attachments/assets/3dfc6c28-26b8-41c9-8535-6b3716ed8cdbq"> <img src="https://github.com/user-attachments/assets/60a75f48-4bce-4a8e-8957-45a0c1dee3f9"> <img src="https://github.com/user-attachments/assets/383655cb-e44d-4bcc-923f-de2d2e702d93"> <img src="https://github.com/user-attachments/assets/da7b7bfd-fa25-4068-8855-f4214c2e975b"> <img src="https://github.com/user-attachments/assets/4843621f-6283-43f3-80b9-c8e373670a82"> <img src="https://github.com/user-attachments/assets/efd916e6-62b4-437e-99b5-23cb489e8e44">
+
+
+
+
+
+
 
 
 
