@@ -1,5 +1,6 @@
-<p>
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31pigreyzqrq6pxlf7qeoy7qfatq&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=31pigreyzqrq6pxlf7qeoy7qfatq&redirect=true)
   <img src="https://github.com/user-attachments/assets/69ebd30f-a2cd-420a-b058-10136739e3b7">
+  
 <p>
 <p>
 <p>
