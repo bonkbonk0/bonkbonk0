@@ -18,13 +18,15 @@ yo papa
 yo gurt
 <p>
 <p>
-<br clear="both"/>
   
 <img align="center" src="https://github.com/user-attachments/assets/9e54e25c-3975-4198-8930-5177a5bd6ae2">
 <p>
+  <p>
+  <p>
 <img align="center" src="https://github.com/user-attachments/assets/4cc86684-6683-4a56-8169-e516bfeeedfb">
 <p>
- 
+
+ <br clear="both"/>
 <div align=center>
 yo mama
 <p>
