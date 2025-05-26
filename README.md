@@ -33,17 +33,12 @@ yo mama
 <div align=center>
   
 <img src="https://github.com/user-attachments/assets/81a7702a-d287-45cf-8635-d96ee2534372"> <img src="https://github.com/user-attachments/assets/108ace13-7f0f-4272-aea5-e6506187e408"> <img src="https://github.com/user-attachments/assets/29078547-a59c-48f4-b08f-9365de27ce71">
-<img src="https://github.com/user-attachments/assets/5f332fd6-2fd5-40c2-8275-e23d4cc3a21b"> <img src="https://github.com/user-attachments/assets/c35dde8a-fba8-4316-845f-a015e67ac79b">
 
-
+<img src="https://github.com/user-attachments/assets/5f332fd6-2fd5-40c2-8275-e23d4cc3a21b"> <img src="https://github.com/user-attachments/assets/c35dde8a-fba8-4316-845f-a015e67ac79b"> <img src="https://github.com/user-attachments/assets/4f9c4f00-a10c-4760-8cf7-1b644c3b8dc7">
 </div>
-
  <br clear="both"/>
 <div align=center>
-
-<p>
-  <p>
-    <img src="https://github.com/user-attachments/assets/931917f8-bb22-4f5c-88bc-194951e090dd"> uhhhhhhh whisper to me if you wanna interact w/ me <img src="https://github.com/user-attachments/assets/eb11c0ac-6aa5-44f9-916a-12b1d49f21ee"
+  <img src="https://github.com/user-attachments/assets/931917f8-bb22-4f5c-88bc-194951e090dd"> uhhhhhhh whisper to me if you wanna interact w/ me <img src="https://github.com/user-attachments/assets/eb11c0ac-6aa5-44f9-916a-12b1d49f21ee"
 
 <p>
 
