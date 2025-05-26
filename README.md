@@ -24,8 +24,10 @@ yo gurt
 <p>
  
 <br clear="both"/>
-<p>
 yo mama
+I don't really know what to do, my boyfriend is pretty toxic in the sense of he never pays attention to me, his friends always come first no matter what, he will drop everything and anyone for his best friend and ya I understand that a little bit bc they have a emotional bond but she treats him like shit she ghosts him and shit, hes also really possessive it hasn't happened yet w me but with all his other exes he would isolate them and make them block people, if they asked him to be fair or even try to reason with him he would get upset I know it's going to happen with me but I'm giving him a chance, I'm prepared for it and l'm prepared to go because I know loving him sometimes means letting go. I think once it gets bad Ill end things and if he does love me like he says then he would try to be better not to mention I think he has a crush on his bsf but doesn't want to accept it
+Yesterday I caught him in dating servers bc his friend showed me and I kinda just sat their and cried because I can deal with everything but I don't know if I can handle being cheated on again I truly do have feelings for him and I dont think or want to date anyone after him.
+l'm just exhausted I try to be pretty patient with him and calm bc he has bpd
 <p>
 <img src="https://github.com/user-attachments/assets/7ae403de-3508-4c10-aec1-b71b2faababa">
 
