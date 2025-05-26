@@ -1,3 +1,3 @@
 ## Yo mama
 
-![image](https://github.com/user-attachments/assets/b361aef3-945f-446b-b65e-9d66b93359a1)
+![zns2ega65d3d1](https://github.com/user-attachments/assets/455fc49c-9b10-4550-9a8f-8ef54b58a2f2)
