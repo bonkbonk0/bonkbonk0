@@ -32,7 +32,12 @@ yo mama
 
 <p>
   <p>
+    <img src="https://github.com/user-attachments/assets/931917f8-bb22-4f5c-88bc-194951e090dd"> uhhhhhhh whisper to me if you wanna interact w/ me <img src="https://github.com/user-attachments/assets/eb11c0ac-6aa5-44f9-916a-12b1d49f21ee"
 
+<p>
+
+<img src="https://github.com/user-attachments/assets/e8bed0d3-9756-4791-996a-47b8aaabd3f5"> no noobs allowed <img src="https://github.com/user-attachments/assets/e8bed0d3-9756-4791-996a-47b8aaabd3f5">
+<p>
 <p>
 <img src="https://github.com/user-attachments/assets/7ae403de-3508-4c10-aec1-b71b2faababa">
 
