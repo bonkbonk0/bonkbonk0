@@ -30,9 +30,13 @@ yo gurt
     
 yo mama
 
+<div align=center>
+  
 <img src="https://github.com/user-attachments/assets/81a7702a-d287-45cf-8635-d96ee2534372"> <img src="https://github.com/user-attachments/assets/108ace13-7f0f-4272-aea5-e6506187e408"> <img src="https://github.com/user-attachments/assets/29078547-a59c-48f4-b08f-9365de27ce71">
+<img src="https://github.com/user-attachments/assets/5f332fd6-2fd5-40c2-8275-e23d4cc3a21b"> <img src="https://github.com/user-attachments/assets/c35dde8a-fba8-4316-845f-a015e67ac79b">
 
 
+</div>
 
  <br clear="both"/>
 <div align=center>
