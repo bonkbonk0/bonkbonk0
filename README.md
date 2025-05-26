@@ -59,8 +59,7 @@ yo mama
     
   <p>
 <img src="https://github.com/user-attachments/assets/747ed140-a8f7-4a2e-9ee7-0de12c889ba0">
-
-  
+      
 </details>
   <p>
     
@@ -69,6 +68,7 @@ yo mama
 <div align="center">
   
  <img width="900" height="15" src="https://github.com/user-attachments/assets/7ae403de-3508-4c10-aec1-b71b2faababa"/>
+ <img width="900" src="https://github.com/user-attachments/assets/1302358e-0178-41af-bc2c-401cc9f102d3">
  <p>
   <p>
   <p>
