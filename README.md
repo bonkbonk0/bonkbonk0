@@ -49,7 +49,7 @@ yo mama
   <p>
     
 <br clear="left"/>
- <img align="center" width="700" src="https://github.com/user-attachments/assets/7ae403de-3508-4c10-aec1-b71b2faababa">
+ <img align="center" width="900" height="15" src="https://github.com/user-attachments/assets/7ae403de-3508-4c10-aec1-b71b2faababa">
 
   
 </p>
