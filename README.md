@@ -43,8 +43,12 @@ yo mama
   
   <div align="left">
 <details>
-<summary>stamps</summary>
-<br>
+<summary>fav media all the time</summary>
+<br clear="left">
+<img src="https://github.com/user-attachments/assets/72f41d54-4200-4248-a362-7c92a9094903"> <img src="https://github.com/user-attachments/assets/eaf30b06-8b4e-4b26-a012-af544c114156">
+
+
+  
 </details>
   <p>
     
