@@ -7,13 +7,13 @@
   
 <div align="center"> 
   
-<img align="left" width="200" height="200" src="https://github.com/user-attachments/assets/bff37d46-9a8e-487c-9122-7605b30cd096"/> 
+<img align="left" width="180" height="180" src="https://github.com/user-attachments/assets/bff37d46-9a8e-487c-9122-7605b30cd096"/> 
 
 yo papa
  <p>
  <p>
    
-<img align="right" width="350" height="250" src="https://github.com/user-attachments/assets/455fc49c-9b10-4550-9a8f-8ef54b58a2f2"/>
+<img align="right" width="370" height="250" src="https://github.com/user-attachments/assets/455fc49c-9b10-4550-9a8f-8ef54b58a2f2"/>
 
 yo gurt
 <p>
