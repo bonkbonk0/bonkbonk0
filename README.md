@@ -70,6 +70,10 @@ yo mama
 <img src="https://y2k.neocities.org/stamps2/pastel%20(10).gif">
 <img src="https://y2k.neocities.org/stamps/tumblr_inline_pe6lc5NODF1v11djx_1280.gif">
 <img src="https://y2k.neocities.org/stamps2/tumblr_inline_p25mcqZLDR1ux8fd4_500.gif">
+<img src="https://y2k.neocities.org/stamps2/no_stamp_by_x_bronwen_x-d6yegcc.png">
+<img src="https://y2k.neocities.org/stamps2/c86b329ea22875dc22256b5854bff397-d4wl570.png">
+<img src="https://y2k.neocities.org/stamps2/old_web_stamp_by_vtge-dcgi6h4.png">
+<img src="
  
 <img src="https://adriansblinkiecollection.neocities.org/stamps/a39.png">
 <img src="https://pixelsafari.neocities.org/stamps/more/3ds.gif">
