@@ -62,10 +62,14 @@ yo mama
 <img src="https://y2k.neocities.org/stamps/tumblr_pbyzqd09lD1xzybrpo6_100.gif">
 <img src="https://y2k.neocities.org/stamps/tumblr_pdu1u6f4Fy1wpplaao4_100.png">
 <img src="https://y2k.neocities.org/stamps/tumblr_pblryrISUf1xzybrpo6_100.png">
-<img src="
-<img src="
-<img src="
-<img src="
+<img src="https://y2k.neocities.org/stamps/tumblr_pbyzqd09lD1xzybrpo1_100.gif">
+<img src="https://y2k.neocities.org/stamps/tumblr_pbx7ekLOcg1xzybrpo3_100.png">
+<img src="https://y2k.neocities.org/stamps/tumblr_inline_pe6lc5NODF1v11djx_1280.gif">
+<img src="https://y2k.neocities.org/stamps/tumblr_pbyzqd09lD1xzybrpo4_100.gif">
+<img src="https://y2k.neocities.org/stamps/tumblr_pbyzqd09lD1xzybrpo3_100.gif">
+<img src="https://y2k.neocities.org/stamps2/pastel%20(10).gif">
+<img src="https://y2k.neocities.org/stamps/tumblr_inline_pe6lc5NODF1v11djx_1280.gif">
+<img src="https://y2k.neocities.org/stamps2/tumblr_inline_p25mcqZLDR1ux8fd4_500.gif">
  
 <img src="https://adriansblinkiecollection.neocities.org/stamps/a39.png">
 <img src="https://pixelsafari.neocities.org/stamps/more/3ds.gif">
