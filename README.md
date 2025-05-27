@@ -57,7 +57,16 @@ yo mama
     
 <img src="https://github.com/user-attachments/assets/beb7f4b6-f336-4da4-9cbc-3fdfe78f2553"> <img src="https://pixelsafari.neocities.org/stamps/more/undertale2.png"> <img src="https://github.com/user-attachments/assets/3dfc6c28-26b8-41c9-8535-6b3716ed8cdbq"> <img src="https://github.com/user-attachments/assets/747ed140-a8f7-4a2e-9ee7-0de12c889ba0"> <img src="https://pixelsafari.neocities.org/stamps/more/dog.gif"> <img src="https://github.com/user-attachments/assets/562925e8-8acd-4e1e-9499-155467710131"> <img src="https://github.com/user-attachments/assets/60a75f48-4bce-4a8e-8957-45a0c1dee3f9"> <img src="https://github.com/user-attachments/assets/383655cb-e44d-4bcc-923f-de2d2e702d93"> <img src="https://pixelsafari.neocities.org/stamps/more/fnaf.gif"> <img src="https://adriansblinkiecollection.neocities.org/stamps/j8.png"> <img src="https://github.com/user-attachments/assets/da7b7bfd-fa25-4068-8855-f4214c2e975b"> <img src="https://github.com/user-attachments/assets/4843621f-6283-43f3-80b9-c8e373670a82"> <img src="https://github.com/user-attachments/assets/efd916e6-62b4-437e-99b5-23cb489e8e44"> <img src="https://github.com/user-attachments/assets/489f0549-fdd2-428d-971d-cd476c350c49"> <img width="95" height="55" src="https://github.com/user-attachments/assets/d95234e3-bbe7-43a3-bc9f-6ec7d494520f"> <img width="95" height="55" src="https://github.com/user-attachments/assets/8f512c42-074a-413c-91e2-192e8180215d"> <img width="95" height="55" src="https://github.com/user-attachments/assets/2fd60331-b418-41ce-b7e5-8b3d8fa998eb"> <img src="https://github.com/user-attachments/assets/afdadeff-d610-4d43-a5ee-967a7d4d6420"> <img src="https://github.com/user-attachments/assets/5aceebd0-7918-49b3-8251-cf499829f291"> <img src="https://github.com/user-attachments/assets/c14fd650-96a9-402a-9bba-1fe4c7fadf68"> <img src="https://github.com/user-attachments/assets/85a34f2f-ff89-4853-b11e-81c562db7aef"> <img src="https://github.com/user-attachments/assets/ceb97425-3226-48ae-9133-edf19ce29be6"> <img src="https://github.com/user-attachments/assets/388dc5e9-30ef-49bd-ab54-04fc1d3083ff"> <img src="https://y2k.neocities.org/stamps/tumblr_inline_pe6lwp1j9T1v11djx_1280.gif"> <img src="https://y2k.neocities.org/stamps/tumblr_inline_pe6lvyf45q1v11djx_1280.gif">  <img src="https://y2k.neocities.org/stamps/tumblr_inline_pe6lw1tkVl1v11djx_1280.gif"> <img src="https://y2k.neocities.org/stamps/queen%20miku.gif"> <img src="https://y2k.neocities.org/stamps/tumblr_inline_pe6lvwLg3C1v11djx_1280.gif"> <img src="https://y2k.neocities.org/stamps/tumblr_inline_pe6lw0vkoA1v11djx_1280.gif"> <img src="https://y2k.neocities.org/stamps/tumblr_inline_pe6lwmcBFT1v11djx_1280.gif"> <img src="https://y2k.neocities.org/stamps/tumblr_inline_pe6lwnS1tU1v11djx_1280.gif"> <img src="https://y2k.neocities.org/stamps/tumblr_inline_pe6lwmXgbk1v11djx_1280.gif"> <img src="https://y2k.neocities.org/stamps2/lovely_doraemon_stamp_by_teammist-d4qx27x.gif"> <img src="https://y2k.neocities.org/stamps/tumblr_phusl1y0JK1xk82cxo9_100.gif"> <img src="https://y2k.neocities.org/stamps/tumblr_phusl1y0JK1xk82cxo2_100.gif"> <img src="https://y2k.neocities.org/stamps/tumblr_phusl1y0JK1xk82cxo1_100.gif"> <img src="https://y2k.neocities.org/stamps2/kyubey_stamp_by_death_summoner-d4omq88.png">
 
-
+<img src="https://64.media.tumblr.com/b2ac2e6aabadeb8b3553d9caa3b8ebb6/f06d09507e506cb1-4f/s100x200/e265fa9ab6b7c5e68d14687ccb1930b0b3148109.gif"> 
+<img src="https://y2k.neocities.org/stamps/tumblr_pdu1u6f4Fy1wpplaao3_100.gif">
+<img src="https://y2k.neocities.org/stamps/tumblr_pbyzqd09lD1xzybrpo6_100.gif">
+<img src="https://y2k.neocities.org/stamps/tumblr_pdu1u6f4Fy1wpplaao4_100.png">
+<img src="https://y2k.neocities.org/stamps/tumblr_pblryrISUf1xzybrpo6_100.png">
+<img src="
+<img src="
+<img src="
+<img src="
+ 
 <img src="https://adriansblinkiecollection.neocities.org/stamps/a39.png">
 <img src="https://pixelsafari.neocities.org/stamps/more/3ds.gif">
 <img src="https://pixelsafari.neocities.org/stamps/more/meta4.gif">
@@ -65,7 +74,8 @@ yo mama
 <img src="https://adriansblinkiecollection.neocities.org/stamps/f61.gif">
 <img src="https://adriansblinkiecollection.neocities.org/stamps/b19.gif">
 <img src="https://adriansblinkiecollection.neocities.org/stamps/b6.png">
-<img
+<img src="https://64.media.tumblr.com/d8604b3396f4451a3565ac9871314d7c/0855d29a81835367-60/s250x400/917eddab6925a533b043b569e49cc4258cefa218.gif">
+
   <p>
     
   <p>
